@@ -1,8 +1,11 @@
-Hi there 👋 Welcome to my profile!
+Hi there 👋 Welcome to my profile! ♫
+
+☂️ rain is typing...
 
 I'm Joy, or Rain as most people know me by on Scratch (@softlysinging). 
-I'm a current atypical mid-teen who is in high school (10th grade), class of '25 and likes to read, write, and sing, (I love music, because I'm a music family!!!) as well as being an INFP-T and an aquarius (bday in 
-february.), piano, and hand-lettering. I'm also a minor in case you were wondering but I don't think you were. 
+I'm a current atypical mid-teen who is in high school (10th grade), class of '25 and likes to read, write, and sing, (I love music, because I'm a music family!!!) as well as being an INFP-T and an aquarius♒(bday in 
+february.), piano, and hand-lettering. I'm also a minor in case you were wondering but I don't think you were.
+
 
 favorite stuff: 
 favorite color: purple
@@ -26,4 +29,4 @@ state of mind at the moment: I don't really know. I'm kind of relaxed today.
 
 chat room: https://scratch.mit.edu/studios/30205721/
 
-
+Thank you for stopping by my profile! Until next time~ 
