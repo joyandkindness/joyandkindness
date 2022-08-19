@@ -29,4 +29,6 @@ state of mind at the moment: I don't really know. I'm kind of relaxed today.
 
 chat room: https://scratch.mit.edu/studios/30205721/
 
+https://scratch.mit.edu/users/softlysinging/
+
 Thank you for stopping by my profile! Until next time~ 
