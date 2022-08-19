@@ -16,6 +16,8 @@ past accounts: @-Bunnylover-123
 
 sister: @crxchetinq-
 
+fun fact: I can memorize things very fast. I once had braces.
+
 pronouns: she/her
 what I'm working on: being very very confused about life. 
 having everyone think I'm strange and weird. 
