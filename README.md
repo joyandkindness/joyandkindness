@@ -6,6 +6,8 @@ I'm Joy, or Rain as most people know me by on Scratch (@softlysinging).
 I'm a current atypical mid-teen who is in high school (10th grade), class of '25 and likes to read, write, and sing, (I love music, because I'm a music family!!!) as well as being an INFP-T and an aquarius♒(bday in 
 february.), piano, and hand-lettering. I'm also a minor in case you were wondering but I don't think you were.
 
+trying to get my wpm to top 100 at the moment. Right now it's around eighty. 
+
 
 favorite stuff: 
 favorite color: purple
