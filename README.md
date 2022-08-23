@@ -16,7 +16,7 @@ favorite food: apples
 only current accounts: @softlysinging, @joyandkindness, @--Bunnylover-123
 past accounts: @-Bunnylover-123
 
-sister: @crxchetinq-
+sister: @flxverfly
 
 fun fact: I can memorize things very fast. I once had braces.
 
