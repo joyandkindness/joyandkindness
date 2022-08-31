@@ -18,7 +18,7 @@ past accounts: @-Bunnylover-123
 
 sister: @flxverfly
 
-fun fact: I can memorize things very fast. I once had braces.
+fun fact: I can memorize things very fast. I once had braces. (edit: I need braces next year aka junior year. *insert cringe stuff here*) 
 
 pronouns: she/her
 what I'm working on: being very very confused about life. 
